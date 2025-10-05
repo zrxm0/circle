@@ -14,7 +14,7 @@ HTX Official Site: [https://www.htx.com](https://www.htx.com/invite/en-us/1f?inv
 
 ## HTX Coupon Codes
 
-HTX offers multiple promotional codes for new users in October 2025 that provide substantial welcome bonuses and trading fee discounts. Active referral codes include **xa8wb223** for up to $1,500 USDT in sign-up bonuses plus 20% trading fee discount, **9mry4223** for $4,500 USDT welcome bonus with lifetime 10% fee discount, **ihyf7** for $1,500 USDT bonus, **4spx7** for 20% fee discount with $1,500 USDT, and **1PLUS** for $1,500 bonus rewards. Users can activate these codes during registration to unlock Crypto Mystery Boxes containing USDT rewards and access exclusive promotions. The platform also offers task-based bonuses where new users earn 200 USDT for signing up, 300 USDT for completing spot trades, and 2 USDT cashback vouchers for completing Level 1 KYC verification.
+HTX offers multiple promotional codes for new users in October 2025 that provide substantial welcome bonuses and trading fee discounts. **7pycd223** for $1,500 bonus rewards. Users can activate these codes during registration to unlock Crypto Mystery Boxes containing USDT rewards and access exclusive promotions. The platform also offers task-based bonuses where new users earn 200 USDT for signing up, 300 USDT for completing spot trades, and 2 USDT cashback vouchers for completing Level 1 KYC verification.
 
 [Click to view the latest promotions on the HTX official site](https://www.htx.com/invite/en-us/1f?invite_code=7pycd223)
 
