@@ -21,7 +21,7 @@ HTX offers multiple promotional codes for new users in October 2025 that provide
 ## HTX Promotions
 
 | Promotion Type | Details | Requirements | Reward Amount | Duration | Purchase Link |
-|---|---|---|---|---|
+|---|---|---|---|---|---|
 | Welcome Bonus | New user sign-up bonus with referral codes | Register with referral code, complete KYC | Up to $1,500 USDT | Ongoing | [HTX Registration](https://www.htx.com/invite/en-us/1f?invite_code=7pycd223) |
 | Mystery Box Bonus | Enhanced welcome package | Use specific referral codes during registration | Up to $4,500 USDT | October 2025 | [HTX Sign Up](https://www.htx.com/invite/en-us/1f?invite_code=7pycd223) |
 | Trading Fee Discount | Lifetime trading fee reduction | Register with referral code | 10% - 50% discount | Permanent | [HTX Trading](https://www.htx.com/invite/en-us/1f?invite_code=7pycd223) |
